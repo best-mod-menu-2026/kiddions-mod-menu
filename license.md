@@ -9,7 +9,7 @@ The **🚗 Kiddions Mod Menu** is the most trusted and popular free mod menu for
 
 <div align="center">
 
-[![Download Kiddions Mod Menu](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/kiddions-mod-menu-free)
+[![Download Kiddions Mod Menu](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/kiddions-mod-menu-free)
 
 </div>
 
@@ -218,7 +218,7 @@ One mod menu. Total control. Zero cost.
 
 <div align="center">
 
-[![Download Kiddions Mod Menu](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/kiddions-mod-menu-free)
+[![Download Kiddions Mod Menu](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/kiddions-mod-menu-free)
 
 **Version 2026.134.1** — Best free GTA mod menu. Free forever.
 
